@@ -11,6 +11,10 @@
 3. 멘토링
 -> 목요일 메토링 참석
 
+4. 골프 게임 예제
+-> https://www.youtube.com/watch?v=0FMhDvNUzj4&list=PLfX6C2dxVyLxRT7MjJNxblLSNHwT1M8zt
+
+
 
 
 
