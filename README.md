@@ -15,6 +15,12 @@
 -> https://www.youtube.com/watch?v=0FMhDvNUzj4&list=PLfX6C2dxVyLxRT7MjJNxblLSNHwT1M8zt
 
 
+**일정
+**기말 전 주 발표 (랜덤), 그 전주 (5/27~6/2 꺼자 완성해야함)
+**멘토링은 23일에 있음
+
+
+
 
 
 
